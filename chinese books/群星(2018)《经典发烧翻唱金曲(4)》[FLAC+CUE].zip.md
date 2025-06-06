@@ -1,0 +1,17 @@
+## 下载地址(download link)
+[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E7%BE%A4%E6%98%9F%282018%29%E3%80%8A%E7%BB%8F%E5%85%B8%E5%8F%91%E7%83%A7%E7%BF%BB%E5%94%B1%E9%87%91%E6%9B%B2%284%29%E3%80%8B%5BFLAC%2BCUE%5D.zip)
+
+## 下载密码(download password)
+1866
+
+## 名称(book name)
+群星(2018)《经典发烧翻唱金曲(4)》[FLAC+CUE].zip.zip
+
+## 语言(language)
+chinese
+
+## MD5
+
+
+## 大小(filesize)
+611.6 MB
