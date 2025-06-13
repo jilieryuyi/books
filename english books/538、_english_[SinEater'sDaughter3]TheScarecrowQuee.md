@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=538%E3%80%81_english_%5BSin+Eater%27s+Daughter+3%5D+The+Scarecrow+Queen_Melinda+Salisbury_Scholastic+Fiction.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=538%E3%80%81_english_%5BSin+Eater%27s+Daughter+3%5D+The+Scarecrow+Queen_Melinda+Salisbury_Scholastic+Fiction.epub)
 
 ## 下载密码(download password)
 8078

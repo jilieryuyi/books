@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=TERESA+TENG+%E9%82%93%E4%B8%BD%E5%90%9B+10CD+%E5%9B%BD%E8%AF%AD%E4%B8%93%E8%BE%91DISC1.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=TERESA+TENG+%E9%82%93%E4%B8%BD%E5%90%9B+10CD+%E5%9B%BD%E8%AF%AD%E4%B8%93%E8%BE%91DISC1.rar)
 
 ## 下载密码(download password)
 1866

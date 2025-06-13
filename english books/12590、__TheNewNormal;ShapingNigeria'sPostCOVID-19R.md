@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=12590%E3%80%81__The+New+Normal%3B+Shaping+Nigeria%27s+Post+COVID-19+Realities_Adedeji+Adewumi_.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=12590%E3%80%81__The+New+Normal%3B+Shaping+Nigeria%27s+Post+COVID-19+Realities_Adedeji+Adewumi_.pdf)
 
 ## 下载密码(download password)
 8078

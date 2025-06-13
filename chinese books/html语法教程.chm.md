@@ -11,7 +11,7 @@ html语法教程.chm.chm
 chinese
 
 ## MD5
-682f961374f849fab17e5b16e478dfb3
+
 
 ## 大小(filesize)
 119.2 KB

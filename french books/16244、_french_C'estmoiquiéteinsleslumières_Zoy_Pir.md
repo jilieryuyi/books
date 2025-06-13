@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=16244%E3%80%81_french_C%27est+moi+qui+%C3%A9teins+les+lumi%C3%A8res_Zoy_+Pirz_d+%5BPirz_d+Zoy_%5D_.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=16244%E3%80%81_french_C%27est+moi+qui+%C3%A9teins+les+lumi%C3%A8res_Zoy_+Pirz_d+%5BPirz_d+Zoy_%5D_.epub)
 
 ## 下载密码(download password)
 8078

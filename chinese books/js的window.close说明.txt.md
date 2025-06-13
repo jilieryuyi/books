@@ -11,7 +11,7 @@ js的window.close说明.txt.txt
 chinese
 
 ## MD5
-9a9e23cbf3416b665c7a35ba821a2ffb
+
 
 ## 大小(filesize)
 1012 B

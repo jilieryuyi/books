@@ -11,7 +11,7 @@ jquery1.7.2_20120420.chw.chw
 english
 
 ## MD5
-cd5c7b582c75516f5a96b5ba8be11f74
+
 
 ## 大小(filesize)
 34 KB

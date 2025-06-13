@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=13018%E3%80%81_french_Hygi%C3%A8ne+de+l%E2%80%99assassin_Nothomb+Am%C3%A9lie_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=13018%E3%80%81_french_Hygi%C3%A8ne+de+l%E2%80%99assassin_Nothomb+Am%C3%A9lie_.fb2)
 
 ## 下载密码(download password)
 8078

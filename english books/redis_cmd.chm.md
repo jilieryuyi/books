@@ -11,7 +11,7 @@ redis_cmd.chm.chm
 english
 
 ## MD5
-b116a7631583f0cef32a81a620d839cb
+
 
 ## 大小(filesize)
 50 KB

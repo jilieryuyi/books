@@ -11,7 +11,7 @@ HSK标准教程-HSK Standard Course Level 5_Jiang Liping, Liu Chang,  Lu Jiang__
 chinese
 
 ## MD5
-5b7d2dbc707bb1ce86b6e2c147c5fccd
+
 
 ## 大小(filesize)
 21.7 MB

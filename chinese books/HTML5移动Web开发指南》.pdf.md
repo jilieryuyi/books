@@ -11,7 +11,7 @@ HTML5移动Web开发指南》.pdf.pdf
 chinese
 
 ## MD5
-1a549a807890922f93197639df6f039e
+
 
 ## 大小(filesize)
 52.2 MB

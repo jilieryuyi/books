@@ -11,7 +11,7 @@ raft.pdf.pdf
 english
 
 ## MD5
-d6db6fd34c5ea56fa1dc8f55df17830e
+
 
 ## 大小(filesize)
 554.2 KB

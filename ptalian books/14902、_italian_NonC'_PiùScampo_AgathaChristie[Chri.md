@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=14902%E3%80%81_italian_Non+C%27_+Pi%C3%B9+Scampo_Agatha+Christie+%5BChristie%2C+Agatha%5D_.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=14902%E3%80%81_italian_Non+C%27_+Pi%C3%B9+Scampo_Agatha+Christie+%5BChristie%2C+Agatha%5D_.epub)
 
 ## 下载密码(download password)
 8078

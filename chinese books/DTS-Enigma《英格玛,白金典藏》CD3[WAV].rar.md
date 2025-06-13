@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=DTS-Enigma%E3%80%8A%E8%8B%B1%E6%A0%BC%E7%8E%9B%2C%E7%99%BD%E9%87%91%E5%85%B8%E8%97%8F%E3%80%8BCD3+%5BWAV%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=DTS-Enigma%E3%80%8A%E8%8B%B1%E6%A0%BC%E7%8E%9B%2C%E7%99%BD%E9%87%91%E5%85%B8%E8%97%8F%E3%80%8BCD3+%5BWAV%5D.rar)
 
 ## 下载密码(download password)
 1866

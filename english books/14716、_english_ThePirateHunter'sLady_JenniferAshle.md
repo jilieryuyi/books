@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=14716%E3%80%81_english_The+Pirate+Hunter%27s+Lady_Jennifer+Ashley_Jennifer+Ashley.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=14716%E3%80%81_english_The+Pirate+Hunter%27s+Lady_Jennifer+Ashley_Jennifer+Ashley.mobi)
 
 ## 下载密码(download password)
 8078

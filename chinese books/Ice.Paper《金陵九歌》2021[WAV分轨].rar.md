@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Ice.Paper%E3%80%8A%E9%87%91%E9%99%B5%E4%B9%9D%E6%AD%8C%E3%80%8B2021%5BWAV%E5%88%86%E8%BD%A8%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=Ice.Paper%E3%80%8A%E9%87%91%E9%99%B5%E4%B9%9D%E6%AD%8C%E3%80%8B2021%5BWAV%E5%88%86%E8%BD%A8%5D.rar)
 
 ## 下载密码(download password)
 1866

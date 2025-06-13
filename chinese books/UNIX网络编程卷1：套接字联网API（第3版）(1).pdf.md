@@ -11,7 +11,7 @@ UNIX网络编程卷1：套接字联网API（第3版）(1).pdf.pdf
 chinese
 
 ## MD5
-929611e30fb353650c41b39e42160147
+
 
 ## 大小(filesize)
 85 MB

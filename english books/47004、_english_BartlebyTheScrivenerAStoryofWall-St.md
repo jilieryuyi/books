@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=47004%E3%80%81_english_Bartleby+The+Scrivener+A+Story+of+Wall-Street_Melville+Herman_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=47004%E3%80%81_english_Bartleby+The+Scrivener+A+Story+of+Wall-Street_Melville+Herman_.fb2)
 
 ## 下载密码(download password)
 8078

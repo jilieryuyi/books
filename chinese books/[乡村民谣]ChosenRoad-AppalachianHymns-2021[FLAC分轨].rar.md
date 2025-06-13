@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%5B%E4%B9%A1%E6%9D%91%E6%B0%91%E8%B0%A3%5DChosen+Road+-+Appalachian+Hymns-2021+%5BFLAC%E5%88%86%E8%BD%A8%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=%5B%E4%B9%A1%E6%9D%91%E6%B0%91%E8%B0%A3%5DChosen+Road+-+Appalachian+Hymns-2021+%5BFLAC%E5%88%86%E8%BD%A8%5D.rar)
 
 ## 下载密码(download password)
 1866

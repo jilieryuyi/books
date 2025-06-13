@@ -11,7 +11,7 @@ redis-cli.pdf.pdf
 english
 
 ## MD5
-d4f2675255c9c58128ccbdd13c031c14
+
 
 ## 大小(filesize)
 177.8 KB

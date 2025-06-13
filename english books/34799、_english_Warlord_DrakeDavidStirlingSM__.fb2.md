@@ -1,0 +1,17 @@
+## 下载地址(download link)
+[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=34799%E3%80%81_english_Warlord_Drake+David+Stirling+S+M__.fb2)
+
+## 下载密码(download password)
+8078
+
+## 名称(book name)
+34799、_english_Warlord_Drake David Stirling S M__.fb2.fb2
+
+## 语言(language)
+english
+
+## MD5
+
+
+## 大小(filesize)
+321.3 KB

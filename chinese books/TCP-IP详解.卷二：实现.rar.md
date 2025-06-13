@@ -11,7 +11,7 @@ TCP-IP详解.卷二：实现.rar.rar
 chinese
 
 ## MD5
-6aa7c57a756304b74920941d0cdfb1b7
+
 
 ## 大小(filesize)
 28.6 MB

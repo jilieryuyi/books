@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%5BAudio+CD+HD%5D+Eagles+%281976%29+-+Hotel+California+%28MFSL+1-126%2Cvinyl+rip+24bit-96kHz%29+%5Bflacs%2Cbooklet%5D+%5B1302%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=%5BAudio+CD+HD%5D+Eagles+%281976%29+-+Hotel+California+%28MFSL+1-126%2Cvinyl+rip+24bit-96kHz%29+%5Bflacs%2Cbooklet%5D+%5B1302%5D.rar)
 
 ## 下载密码(download password)
 1866

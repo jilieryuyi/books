@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=16246%E3%80%81_french_On+s%27y+fera_Pirz_d%2C+Zoy_+%5BPirz_d%2C+Zoy_%5D__DITIONS+ZULMA.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=16246%E3%80%81_french_On+s%27y+fera_Pirz_d%2C+Zoy_+%5BPirz_d%2C+Zoy_%5D__DITIONS+ZULMA.epub)
 
 ## 下载密码(download password)
 8078

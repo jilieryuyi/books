@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=51088%E3%80%81_english_Trance%E2%80%93formations.+Neuro%E2%80%93Linguistic+Programming_+and+the+Structure+of+Hypnosis_Bandler+Richard+Wayne+Grinder+John_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=51088%E3%80%81_english_Trance%E2%80%93formations.+Neuro%E2%80%93Linguistic+Programming_+and+the+Structure+of+Hypnosis_Bandler+Richard+Wayne+Grinder+John_.fb2)
 
 ## 下载密码(download password)
 8078

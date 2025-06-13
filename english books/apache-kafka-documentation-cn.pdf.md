@@ -11,7 +11,7 @@ apache-kafka-documentation-cn.pdf.pdf
 english
 
 ## MD5
-a5c2e11c1551f7c8337d230126a08a32
+
 
 ## 大小(filesize)
 2 MB

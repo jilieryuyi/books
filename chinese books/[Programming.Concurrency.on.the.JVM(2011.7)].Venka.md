@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%5BProgramming.Concurrency.on.the.JVM%282011.7%29%5D.Venkat.Subramaniam.%E6%96%87%E5%AD%97%E7%89%88.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=%5BProgramming.Concurrency.on.the.JVM%282011.7%29%5D.Venkat.Subramaniam.%E6%96%87%E5%AD%97%E7%89%88.pdf)
 
 ## 下载密码(download password)
 8078
@@ -11,7 +11,7 @@
 chinese
 
 ## MD5
-c17e054de1129a959c7f93ae7b00741e
+
 
 ## 大小(filesize)
 3.9 MB

@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=SVG%E6%95%99%E7%A8%8B.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=SVG%E6%95%99%E7%A8%8B.pdf)
 
 ## 下载密码(download password)
 8078
@@ -11,7 +11,7 @@ SVG教程.pdf.pdf
 chinese
 
 ## MD5
-0fbc2ffec7d623c002903e061a11839c
+
 
 ## 大小(filesize)
 833.1 KB

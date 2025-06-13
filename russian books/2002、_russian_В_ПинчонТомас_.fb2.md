@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=2002%E3%80%81_russian_%D0%92_%D0%9F%D0%B8%D0%BD%D1%87%D0%BE%D0%BD+%D0%A2%D0%BE%D0%BC%D0%B0%D1%81_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=2002%E3%80%81_russian_%D0%92_%D0%9F%D0%B8%D0%BD%D1%87%D0%BE%D0%BD+%D0%A2%D0%BE%D0%BC%D0%B0%D1%81_.fb2)
 
 ## 下载密码(download password)
 8078

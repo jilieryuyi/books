@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=14521%E3%80%81_english_Smuggler%27s+Lady_Jane+Feather_Kensington+Publishing+Corp..mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=14521%E3%80%81_english_Smuggler%27s+Lady_Jane+Feather_Kensington+Publishing+Corp..mobi)
 
 ## 下载密码(download password)
 8078

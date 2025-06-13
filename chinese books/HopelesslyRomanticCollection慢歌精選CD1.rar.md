@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Hopelessly+Romantic+Collection+%E6%85%A2%E6%AD%8C%E7%B2%BE%E9%81%B8CD1.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=Hopelessly+Romantic+Collection+%E6%85%A2%E6%AD%8C%E7%B2%BE%E9%81%B8CD1.rar)
 
 ## 下载密码(download password)
 1866

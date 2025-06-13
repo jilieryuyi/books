@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E5%85%8D%E8%B4%B9%E6%8A%80%E6%9C%AF%E6%9D%90%E6%96%99-OK.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=%E5%85%8D%E8%B4%B9%E6%8A%80%E6%9C%AF%E6%9D%90%E6%96%99-OK.pdf)
 
 ## 下载密码(download password)
 8078
@@ -11,7 +11,7 @@
 chinese
 
 ## MD5
-8166f295e8c0d17c83c94ced5fb5cac0
+
 
 ## 大小(filesize)
 299 KB

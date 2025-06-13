@@ -11,7 +11,7 @@ pdf_reference_1.7.pdf.pdf
 english
 
 ## MD5
-dbdb23c939d2be09b43126c3c56060c7
+
 
 ## 大小(filesize)
 31 MB

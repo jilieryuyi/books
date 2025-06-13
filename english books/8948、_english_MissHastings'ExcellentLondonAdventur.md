@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=8948%E3%80%81_english_Miss+Hastings%27+Excellent+London+Adventure_Cheryl+Bolen_Harper+%26+Appleton.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=8948%E3%80%81_english_Miss+Hastings%27+Excellent+London+Adventure_Cheryl+Bolen_Harper+%26+Appleton.mobi)
 
 ## 下载密码(download password)
 8078

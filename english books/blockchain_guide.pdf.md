@@ -11,7 +11,7 @@ blockchain_guide.pdf.pdf
 english
 
 ## MD5
-beb34b6953291d728836b07135835db4
+
 
 ## 大小(filesize)
 6.6 MB

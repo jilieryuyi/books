@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=13558%E3%80%81_english_The+Duke%27s+Obsession_Frances+Fowlkes_Entangled+Publishing%2C+LLC.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=13558%E3%80%81_english_The+Duke%27s+Obsession_Frances+Fowlkes_Entangled+Publishing%2C+LLC.mobi)
 
 ## 下载密码(download password)
 8078

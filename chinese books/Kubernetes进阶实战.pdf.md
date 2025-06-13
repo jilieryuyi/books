@@ -11,7 +11,7 @@ Kubernetes进阶实战.pdf.pdf
 chinese
 
 ## MD5
-7e3721e6db189f0243431eaeaad581ac
+
 
 ## 大小(filesize)
 296.1 MB

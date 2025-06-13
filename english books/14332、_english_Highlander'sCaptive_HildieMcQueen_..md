@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=14332%E3%80%81_english_Highlander%27s+Captive_Hildie+McQueen_.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=14332%E3%80%81_english_Highlander%27s+Captive_Hildie+McQueen_.mobi)
 
 ## 下载密码(download password)
 8078

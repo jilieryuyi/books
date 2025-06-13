@@ -1,0 +1,17 @@
+## 下载地址(download link)
+[下载链接 download link](https://tutu365.netlify.app/?s=24%E5%B0%8F%E6%97%B6%E9%9B%B6%E5%9F%BA%E7%A1%80%E8%BF%87%E5%85%B3%E2%80%94%E2%80%94Internet%E5%BA%94%E7%94%A8%E4%B8%80%E6%9C%AC%E9%80%9A.pdf)
+
+## 下载密码(download password)
+8078
+
+## 名称(book name)
+24小时零基础过关——Internet应用一本通.pdf.pdf
+
+## 语言(language)
+chinese
+
+## MD5
+
+
+## 大小(filesize)
+117.9 MB

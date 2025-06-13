@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E8%BF%99%E5%B0%B1%E6%98%AFChatGPT_%E7%BE%8E%E6%96%AF%E8%92%82%E8%8A%AC%C2%B7%E6%B2%83%E5%B0%94%E5%BC%97%E6%8B%89%E5%A7%86.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=%E8%BF%99%E5%B0%B1%E6%98%AFChatGPT_%E7%BE%8E%E6%96%AF%E8%92%82%E8%8A%AC%C2%B7%E6%B2%83%E5%B0%94%E5%BC%97%E6%8B%89%E5%A7%86.pdf)
 
 ## 下载密码(download password)
 8078
@@ -11,7 +11,7 @@
 chinese
 
 ## MD5
-a04890a2fa0402f353bf6a89791d52b7
+
 
 ## 大小(filesize)
 12.2 MB

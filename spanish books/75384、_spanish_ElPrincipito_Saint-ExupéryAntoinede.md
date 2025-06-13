@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=75384%E3%80%81_spanish_El+Principito_Saint-Exup%C3%A9ry+Antoine+de_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=75384%E3%80%81_spanish_El+Principito_Saint-Exup%C3%A9ry+Antoine+de_.fb2)
 
 ## 下载密码(download password)
 8078

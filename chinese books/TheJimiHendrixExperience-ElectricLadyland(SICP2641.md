@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=The+Jimi+Hendrix+Experience+-+Electric+Ladyland+%28SICP+2641%29CUE%E4%BF%AE%E5%A4%8D.cue)
+[下载链接 download link](https://tutu365.netlify.app/?s=The+Jimi+Hendrix+Experience+-+Electric+Ladyland+%28SICP+2641%29CUE%E4%BF%AE%E5%A4%8D.cue)
 
 ## 下载密码(download password)
 1866

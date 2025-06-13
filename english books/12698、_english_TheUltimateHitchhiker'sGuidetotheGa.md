@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=12698%E3%80%81_english_The+Ultimate+Hitchhiker%27s+Guide+to+the+Galaxy_Douglas+Adams_Del+Rey.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=12698%E3%80%81_english_The+Ultimate+Hitchhiker%27s+Guide+to+the+Galaxy_Douglas+Adams_Del+Rey.mobi)
 
 ## 下载密码(download password)
 8078

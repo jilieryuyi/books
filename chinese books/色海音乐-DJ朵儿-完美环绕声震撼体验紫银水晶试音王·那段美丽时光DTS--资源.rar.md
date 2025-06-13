@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E8%89%B2%E6%B5%B7%E9%9F%B3%E4%B9%90-DJ%E6%9C%B5%E5%84%BF-%E5%AE%8C%E7%BE%8E%E7%8E%AF%E7%BB%95%E5%A3%B0%E9%9C%87%E6%92%BC%E4%BD%93%E9%AA%8C%E7%B4%AB%E9%93%B6%E6%B0%B4%E6%99%B6%E8%AF%95%E9%9F%B3%E7%8E%8B%C2%B7%E9%82%A3%E6%AE%B5%E7%BE%8E%E4%B8%BD%E6%97%B6%E5%85%89DTS--%E8%B5%84%E6%BA%90.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=%E8%89%B2%E6%B5%B7%E9%9F%B3%E4%B9%90-DJ%E6%9C%B5%E5%84%BF-%E5%AE%8C%E7%BE%8E%E7%8E%AF%E7%BB%95%E5%A3%B0%E9%9C%87%E6%92%BC%E4%BD%93%E9%AA%8C%E7%B4%AB%E9%93%B6%E6%B0%B4%E6%99%B6%E8%AF%95%E9%9F%B3%E7%8E%8B%C2%B7%E9%82%A3%E6%AE%B5%E7%BE%8E%E4%B8%BD%E6%97%B6%E5%85%89DTS--%E8%B5%84%E6%BA%90.rar)
 
 ## 下载密码(download password)
 1866

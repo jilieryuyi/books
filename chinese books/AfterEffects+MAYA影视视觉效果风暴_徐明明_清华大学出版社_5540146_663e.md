@@ -11,7 +11,7 @@ After Effects+MAYA 影视视觉效果风暴_徐明明_清华大学出版社_5540
 chinese
 
 ## MD5
-663e05b2ff5ab208d076e285dd910528
+
 
 ## 大小(filesize)
 78.7 MB

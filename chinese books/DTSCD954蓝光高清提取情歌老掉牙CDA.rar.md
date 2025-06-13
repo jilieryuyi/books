@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=DTS+CD+954+%E8%93%9D%E5%85%89%E9%AB%98%E6%B8%85%E6%8F%90%E5%8F%96+%E6%83%85%E6%AD%8C%E8%80%81%E6%8E%89%E7%89%99+CDA.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=DTS+CD+954+%E8%93%9D%E5%85%89%E9%AB%98%E6%B8%85%E6%8F%90%E5%8F%96+%E6%83%85%E6%AD%8C%E8%80%81%E6%8E%89%E7%89%99+CDA.rar)
 
 ## 下载密码(download password)
 1866

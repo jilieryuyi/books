@@ -11,7 +11,7 @@ Programming+Ruby中文版++（第二版）.pdf.pdf
 chinese
 
 ## MD5
-ea430c6dbd942ea71e885119a5b999fb
+
 
 ## 大小(filesize)
 54.7 MB

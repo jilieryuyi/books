@@ -11,7 +11,7 @@ Head First HTML与CSS、XHTML（中文版）.pdf.pdf
 chinese
 
 ## MD5
-fab5974a142fe216c7dee7566cb77664
+
 
 ## 大小(filesize)
 10 MB

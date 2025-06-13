@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=html.chm)
+[下载链接 download link](https://tutu365.netlify.app/?s=html.chm)
 
 ## 下载密码(download password)
 8078
@@ -11,7 +11,7 @@ html.chm.chm
 english
 
 ## MD5
-694dc4b3756f67fa0cea2e2e6d81114b
+
 
 ## 大小(filesize)
 129.9 KB

@@ -11,7 +11,7 @@ Redis实战+.pdf.pdf
 chinese
 
 ## MD5
-a06c2ba6ead72f2f11bc4a516119e21b
+
 
 ## 大小(filesize)
 1.4 MB

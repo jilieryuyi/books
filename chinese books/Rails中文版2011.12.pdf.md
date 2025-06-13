@@ -11,7 +11,7 @@ Rails 中文版 2011.12.pdf.pdf
 chinese
 
 ## MD5
-b082d996a33445e4b6c9bf28e0029c7b
+
 
 ## 大小(filesize)
 70.9 MB

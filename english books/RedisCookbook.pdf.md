@@ -11,7 +11,7 @@ Redis Cookbook.pdf.pdf
 english
 
 ## MD5
-0edaa981bdf3e68e35b85dff88820c30
+
 
 ## 大小(filesize)
 2.2 MB

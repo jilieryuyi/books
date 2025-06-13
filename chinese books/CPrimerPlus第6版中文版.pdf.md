@@ -11,7 +11,7 @@ C   Primer Plus  第6版  中文版.pdf.pdf
 chinese
 
 ## MD5
-7a95cc8306b72351f8b99e2eb3948f42
+
 
 ## 大小(filesize)
 300.8 MB

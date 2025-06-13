@@ -11,7 +11,7 @@ jQuery内核详解与实践.pdf.pdf
 chinese
 
 ## MD5
-353b2dfc65e301a9937425107ee5236a
+
 
 ## 大小(filesize)
 45.1 MB

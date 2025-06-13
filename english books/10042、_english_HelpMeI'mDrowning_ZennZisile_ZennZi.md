@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=10042%E3%80%81_english_Help+Me+I%27m+Drowning+_Zenn+Zisile+_Zenn+Zisile+.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=10042%E3%80%81_english_Help+Me+I%27m+Drowning+_Zenn+Zisile+_Zenn+Zisile+.pdf)
 
 ## 下载密码(download password)
 8078

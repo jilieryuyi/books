@@ -11,7 +11,7 @@ FriendsofED.HTML5.Solutions.Jul.2011.pdf.pdf
 english
 
 ## MD5
-9687df12633b1efaedb5791e4170431b
+
 
 ## 大小(filesize)
 16.9 MB

@@ -11,7 +11,7 @@ NFC  非接触式IC卡国际标准_chenhuan__5392816_e0dcbdadc75f1c921c8a8f05354
 chinese
 
 ## MD5
-e0dcbdadc75f1c921c8a8f05354ebdd2
+
 
 ## 大小(filesize)
 11.9 MB

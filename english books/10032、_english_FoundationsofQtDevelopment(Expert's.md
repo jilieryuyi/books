@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=10032%E3%80%81_english_Foundations+of+Qt+Development+%28Expert%27s+Voice+in+Open+Source%29_Thelin%2C+Johan_Apress.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=10032%E3%80%81_english_Foundations+of+Qt+Development+%28Expert%27s+Voice+in+Open+Source%29_Thelin%2C+Johan_Apress.pdf)
 
 ## 下载密码(download password)
 8078

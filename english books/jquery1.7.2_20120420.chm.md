@@ -11,7 +11,7 @@ jquery1.7.2_20120420.chm.chm
 english
 
 ## MD5
-005157c3cdf182c0aec35cea6c08a199
+
 
 ## 大小(filesize)
 299.2 KB

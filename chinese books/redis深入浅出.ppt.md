@@ -11,7 +11,7 @@ redis深入浅出.ppt.ppt
 chinese
 
 ## MD5
-d734271eb04ed256dce77a78c8aa7f6f
+
 
 ## 大小(filesize)
 921 KB

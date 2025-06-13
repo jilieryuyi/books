@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=7573%E3%80%81_english_The+Stablemaster%27s+Daughter_Barbara+Devlin_Scarsdale+Publishing%2C+Ltd.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=7573%E3%80%81_english_The+Stablemaster%27s+Daughter_Barbara+Devlin_Scarsdale+Publishing%2C+Ltd.mobi)
 
 ## 下载密码(download password)
 8078

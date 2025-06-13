@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=74436%E3%80%81_english_Hamlet+Prince+of+Denmark+%28Collins+edition%29_Shakespeare+William_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=74436%E3%80%81_english_Hamlet+Prince+of+Denmark+%28Collins+edition%29_Shakespeare+William_.fb2)
 
 ## 下载密码(download password)
 8078

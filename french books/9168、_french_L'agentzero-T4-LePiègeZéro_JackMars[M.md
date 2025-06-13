@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=9168%E3%80%81_french_L%27agent+zero-T4-Le+Pi%C3%A8ge+Z%C3%A9ro_Jack+Mars+%5BMars%2C+Jack%5D_.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=9168%E3%80%81_french_L%27agent+zero-T4-Le+Pi%C3%A8ge+Z%C3%A9ro_Jack+Mars+%5BMars%2C+Jack%5D_.epub)
 
 ## 下载密码(download password)
 8078

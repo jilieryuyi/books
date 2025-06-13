@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=22585%E3%80%81_english_Legacy+of+Blood_Knaak+Richard+A._.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=22585%E3%80%81_english_Legacy+of+Blood_Knaak+Richard+A._.fb2)
 
 ## 下载密码(download password)
 8078

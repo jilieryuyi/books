@@ -11,7 +11,7 @@ mysql protocol.pdf.pdf
 english
 
 ## MD5
-316f626828b803db1ec131c8b5bd7a14
+
 
 ## 大小(filesize)
 1.4 MB

@@ -11,7 +11,7 @@ astercc_TV_shopping.pdf.pdf
 english
 
 ## MD5
-f7f05208c18ede686495fbd630464124
+
 
 ## 大小(filesize)
 1.3 MB

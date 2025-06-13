@@ -11,7 +11,7 @@ Rich Text Format (RTF) Version 1.5 Specification.docx.docx
 english
 
 ## MD5
-05da54a3cbf15cca6ffa4deb9fa70dd2
+
 
 ## 大小(filesize)
 541 KB

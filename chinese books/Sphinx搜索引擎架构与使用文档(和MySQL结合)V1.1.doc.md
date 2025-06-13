@@ -11,7 +11,7 @@ Sphinx搜索引擎架构与使用文档(和MySQL结合)V1.1.doc.doc
 chinese
 
 ## MD5
-f1d80c7bec090e8e36c282bc4c23a580
+
 
 ## 大小(filesize)
 7.3 MB

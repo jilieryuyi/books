@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=13889%E3%80%81_english_Myth-Gotten+Gains_Asprin+Robert%2C+Nye+Jody+Lynn_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=13889%E3%80%81_english_Myth-Gotten+Gains_Asprin+Robert%2C+Nye+Jody+Lynn_.fb2)
 
 ## 下载密码(download password)
 8078

@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=66612%E3%80%81_english_Holidays+are+Hell_K+K+K+H+H+H+Sands+Lyndsay+Liu+Marjorie+M+Pettersson+Vicki_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=66612%E3%80%81_english_Holidays+are+Hell_K+K+K+H+H+H+Sands+Lyndsay+Liu+Marjorie+M+Pettersson+Vicki_.fb2)
 
 ## 下载密码(download password)
 8078

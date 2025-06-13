@@ -11,7 +11,7 @@ HEAD_FIRST设计模式（中文版）.pdf.pdf
 chinese
 
 ## MD5
-062e12a6a355d3226a7d5f4809db336a
+
 
 ## 大小(filesize)
 38.1 MB

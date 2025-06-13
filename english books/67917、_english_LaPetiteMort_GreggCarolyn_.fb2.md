@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=67917%E3%80%81_english_La+Petite+Mort_Gregg+Carolyn_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=67917%E3%80%81_english_La+Petite+Mort_Gregg+Carolyn_.fb2)
 
 ## 下载密码(download password)
 8078

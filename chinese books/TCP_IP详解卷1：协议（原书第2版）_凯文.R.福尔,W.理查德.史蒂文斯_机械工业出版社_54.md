@@ -11,7 +11,7 @@ TCP_IP详解 卷1：协议（原书第2版）_凯文.R.福尔,W.理查德.史蒂
 chinese
 
 ## MD5
-96ddf73d3c77189dfb73a7dbe4d7a625
+
 
 ## 大小(filesize)
 149.9 MB

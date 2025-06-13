@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=12743%E3%80%81_french_Menace+en+haute+mer_Michael+DiMercurio_L%27Archipel.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=12743%E3%80%81_french_Menace+en+haute+mer_Michael+DiMercurio_L%27Archipel.epub)
 
 ## 下载密码(download password)
 8078

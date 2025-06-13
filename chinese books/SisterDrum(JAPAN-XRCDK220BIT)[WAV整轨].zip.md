@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Sister+Drum++%28JAPAN-XRCD++K2+20BIT+%29%5BWAV%E6%95%B4%E8%BD%A8%5D.zip)
+[下载链接 download link](https://tutu365.netlify.app/?s=Sister+Drum++%28JAPAN-XRCD++K2+20BIT+%29%5BWAV%E6%95%B4%E8%BD%A8%5D.zip)
 
 ## 下载密码(download password)
 1866

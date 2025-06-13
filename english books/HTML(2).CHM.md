@@ -11,7 +11,7 @@ HTML (2).CHM.chm
 english
 
 ## MD5
-e58a631f1225377d8af64190d9557c95
+
 
 ## 大小(filesize)
 5.8 MB

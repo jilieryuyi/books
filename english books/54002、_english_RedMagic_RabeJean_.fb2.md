@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=54002%E3%80%81_english_Red+Magic_Rabe+Jean_.fb2)
+[下载链接 download link](https://tutu365.netlify.app/?s=54002%E3%80%81_english_Red+Magic_Rabe+Jean_.fb2)
 
 ## 下载密码(download password)
 8078

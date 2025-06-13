@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=2268%E3%80%81_english_Sir+Michael%27s+Mayhem_Susan+M.+Baganz_.mobi)
+[下载链接 download link](https://tutu365.netlify.app/?s=2268%E3%80%81_english_Sir+Michael%27s+Mayhem_Susan+M.+Baganz_.mobi)
 
 ## 下载密码(download password)
 8078

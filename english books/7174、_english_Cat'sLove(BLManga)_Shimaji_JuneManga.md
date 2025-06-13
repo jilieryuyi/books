@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=7174%E3%80%81_english_Cat%27s+Love+%28BL+Manga%29_Shimaji_June+Manga%2C+DMG%2C+DMP.pdf)
+[下载链接 download link](https://tutu365.netlify.app/?s=7174%E3%80%81_english_Cat%27s+Love+%28BL+Manga%29_Shimaji_June+Manga%2C+DMG%2C+DMP.pdf)
 
 ## 下载密码(download password)
 8078

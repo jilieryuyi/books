@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=15148%E3%80%81_french_C%27est+la+guerre_Kennedy+Fox+%5BFox%2C+Kennedy%5D_MxM.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=15148%E3%80%81_french_C%27est+la+guerre_Kennedy+Fox+%5BFox%2C+Kennedy%5D_MxM.epub)
 
 ## 下载密码(download password)
 8078

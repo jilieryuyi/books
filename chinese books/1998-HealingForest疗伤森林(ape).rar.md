@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=1998-Healing+Forest%E7%96%97%E4%BC%A4%E6%A3%AE%E6%9E%97%28ape%29.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=1998-Healing+Forest%E7%96%97%E4%BC%A4%E6%A3%AE%E6%9E%97%28ape%29.rar)
 
 ## 下载密码(download password)
 1866

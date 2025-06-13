@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=%E6%9D%91%E6%B2%BB%E4%BD%B3%E7%BB%87-La.Estella-10th.Anniversary%5BFLAC%2BCUE%5D.rar)
+[下载链接 download link](https://tutu365.netlify.app/?s=%E6%9D%91%E6%B2%BB%E4%BD%B3%E7%BB%87-La.Estella-10th.Anniversary%5BFLAC%2BCUE%5D.rar)
 
 ## 下载密码(download password)
 1866

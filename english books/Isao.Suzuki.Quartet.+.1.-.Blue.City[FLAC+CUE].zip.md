@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=Isao.Suzuki.Quartet.%2B.1.-.Blue.City%5BFLAC%2BCUE%5D.zip)
+[下载链接 download link](https://tutu365.netlify.app/?s=Isao.Suzuki.Quartet.%2B.1.-.Blue.City%5BFLAC%2BCUE%5D.zip)
 
 ## 下载密码(download password)
 1866

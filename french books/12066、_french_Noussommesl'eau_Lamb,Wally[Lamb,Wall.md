@@ -1,5 +1,5 @@
 ## 下载地址(download link)
-[下载链接 download link](https://voluble-croquembouche-d321dc.netlify.app/?s=12066%E3%80%81_french_Nous+sommes+l%27eau_Lamb%2C+Wally+%5BLamb%2C+Wally%5D_Belfond.epub)
+[下载链接 download link](https://tutu365.netlify.app/?s=12066%E3%80%81_french_Nous+sommes+l%27eau_Lamb%2C+Wally+%5BLamb%2C+Wally%5D_Belfond.epub)
 
 ## 下载密码(download password)
 8078

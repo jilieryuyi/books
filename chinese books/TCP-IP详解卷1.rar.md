@@ -11,7 +11,7 @@ TCP-IP详解卷1.rar.rar
 chinese
 
 ## MD5
-b7c4461aa6b38c801dd23df63c82ecbb
+
 
 ## 大小(filesize)
 11.5 MB

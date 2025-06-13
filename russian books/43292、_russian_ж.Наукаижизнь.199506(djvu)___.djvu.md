@@ -1,0 +1,17 @@
+## 下载地址(download link)
+[下载链接 download link](https://tutu365.netlify.app/?s=43292%E3%80%81_russian_%D0%B6.%D0%9D%D0%B0%D1%83%D0%BA%D0%B0+%D0%B8+%D0%B6%D0%B8%D0%B7%D0%BD%D1%8C.+1995+06+%28djvu%29+___.djvu)
+
+## 下载密码(download password)
+8078
+
+## 名称(book name)
+43292、_russian_ж.Наука и жизнь. 1995 06 (djvu) ___.djvu.djvu
+
+## 语言(language)
+russian
+
+## MD5
+
+
+## 大小(filesize)
+6.9 MB
